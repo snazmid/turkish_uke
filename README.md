@@ -1,1 +1,1 @@
-# The code will be available after the page is approved.
+# The code will be available after the paper is approved.
